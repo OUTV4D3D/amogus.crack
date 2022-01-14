@@ -1,0 +1,2 @@
+# amogus.crack
+aaaa
